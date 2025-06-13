@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/722627e4-aec9-4123-9099-2c88db548b79)
+![itsmeraseeca github io_Netflix-Clone_ (1)](https://github.com/user-attachments/assets/038a766b-944c-48b4-80d7-a2bf83d1d2b7)
